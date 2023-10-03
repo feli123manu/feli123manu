@@ -8,6 +8,7 @@ Eu sou a Emanuelli Vitória
 - sou aluna do 1° ano do esino médio
 
 ### Minhas redes para contato
+📫 @emanuelli.felix@escola.pr.gov.br
 
-
+![](https://media.tenor.com/8ySBSgI9EBkAAAAd/cirilo.gif)
 
